@@ -1,0 +1,6 @@
+
+You have lots of choices when it comes to higher education. With so many options, finding the right fit for you can feel overwhelming. Why not choose Snow College—where you can explore, learn, and discover at half the cost? Snow College is located in the beautiful mountain valleys of central Utah. Our small class sizes ensure that you get the help you need, when you need it. Your courses will be taught by experienced professors, which means you get the best quality education possible. Our graduates leave Snow prepared to secure great jobs or pursue additional education.
+
+At Snow, we know that there is more to college life than what happens in the classroom. After class is done, there are many options for recreation. We are just minutes away from incredible 4-wheeling, hiking, and biking trails. The great outdoors not your thing? That’s okay. We have tons of activities for you too. Dances, student clubs, service opportunities, sporting events, and did we mention free food nights? They are all part of our student life activities.
+
+Learn more about Snow College by clicking on the links below.
